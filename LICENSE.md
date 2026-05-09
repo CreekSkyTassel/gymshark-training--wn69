@@ -1,4 +1,4 @@
-
+Strong for macOS secure Extension: goal-setting & community-challenges offers the most advanced Strong for macOS extension, with goal-setting and community-challenges. Ideal for
 
 
 
